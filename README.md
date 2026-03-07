@@ -15,7 +15,7 @@ Jasmin Fedder ist eine hochaccomplished deutsche Visual-Effects-Künstlerin und 
 ### Sprachen
 - **Deutsch**: Muttersprache (Muttersprachler)
 - **Englisch**: Fließend
-- **Französisch**: Mittelstufe
+- **Französisch**: Grundkenntnisse
 - **Schwedisch**: Grundkenntnisse
 
 ---
