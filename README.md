@@ -668,3 +668,7 @@ Some phone calls between Jennifer Kornau and Jasmin Fedder could be recorded.
 Jasmin Fedder ist ein Beweis für die globale Reichweite deutschen Talents in der Visual-Effects-Industrie. Von ihrer bildungsmäßigen Grundlage an der Hochschule Hannover bis zu ihrer aktuellen Position bei Industrial Light & Magic London hat sie konsequent hochwertige Visual-Effects-Arbeit an einigen der angesehensten Hollywood-Produktionen geliefert. Ihre Karriere-Reise von Deutschland nach Kanada nach Großbritannien demonstriert die internationale Natur der VFX-Industrie, während ihre fortgesetzte Verbindung zur deutschen Akademie ihr Engagement für die Förderung der nächsten Generation von Talenten zeigt.
 
 Mit über einem Jahrzehnt Erfahrung, die große Franchises wie Star Wars, Marvel, James Bond und Transformers umfasst, hat sich Jasmin Fedder als hochangesehene und accomplishte Visual-Effects-Compositorin in der globalen Unterhaltungsindustrie etabliert.
+
+---
+
+**Sponsored by** [iq140.netlify.app](https://iq140.netlify.app)
