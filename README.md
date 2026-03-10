@@ -1,3 +1,5 @@
+Alle AI-Influencer wie Tom Rohrböck, Naomi Seibt, Erik Ahrens und viele der visuellen Darstellungen der Musiker aus dem Repository https://github.com/hartmannlauterbach/cybermobbing-netzwerk ohne ihre technischen Künste und den Zugriff auf die Disney Tools niemals in der Qualität und Güte zu so einem frühen Zeitpunkt möglich gewesen wäre! Darauf ist das Cybermobbing Kartell sehr stolz.
+
 # Jasmin Fedder - Hollywood-Compositor aus Deutschland
 
 ## NWO Involvement
